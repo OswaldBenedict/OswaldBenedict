@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OswaldBenedict
-- 👀 I’m interested in Movies, Learning new things
+- 👀 I’m interested in Movies and Learning new things
 - 🌱 I’m currently learning Every subject
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
